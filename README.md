@@ -1,0 +1,2 @@
+# Afspraken maken via WhatsApp
+VDBF heeft een project opgezet waarbij je via WhatsApp gemakkelijk afspraken kunt maken. Voor meer informatie raden wij jullie aan om contact met ons op te nemen. Dit kan via info@vdbf.nl
